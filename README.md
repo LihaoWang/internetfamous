@@ -21,3 +21,5 @@ Braun is also good at cross-promotion. He used Bieber’s fame to benefit other 
 
 While being a successful businessman, Braun was strict with his clients. For instance, when Bieber was late for a performance, Braun immediately called Bieber and yelled at him. Then he would point out his fault and “have somebody come to his house every workday”.
 
+## Week 1 homework
+![](hw1.jpeg)

@@ -9,7 +9,8 @@ From the podcast, I learned that followers doesn’t necessarily mean profit. Pe
 As mentioned by one speaker in the podcast, “creativity and business should work together”. Business has its artist side because  business is a key factor that will make the creativity sustainable. If there’s no way to make money, this won’t be a healthy model. In addition, I totally agree with the last speaker who works as both a writer and a publisher. He is very practical about his work. He said working at the publisher can support him as a writer. As long as the model works, it’s a great way to produce creative work. 
 
 ## Week 2 homework (Jon Bernthal fanpage)
-[Jon Bernthal Fan Club](https://www.facebook.com/JonBernthalFanClub/?notif_id=1537212001974916&notif_t=scheduled_post_published&ref=notif)
+- [Jon Bernthal Fan Club](https://www.facebook.com/JonBernthalFanClub/?notif_id=1537212001974916&notif_t=scheduled_post_published&ref=notif)
+- [Jon Bernthal video cut](https://www.youtube.com/watch?v=Dkwww_POkE4&feature=youtu.be)
 
 ## Week 1 reading response
 In the article “The man who made Justin Bieber”, I learned a lot secrets behind Justin Bieber’s fame, and how he became world-wide famous. Although I grew up in China, I can still remember his song “Baby” was so popular that almost everyone was singing and imitating him. 

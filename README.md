@@ -8,6 +8,9 @@ From the podcast, I learned that followers doesn’t necessarily mean profit. Pe
 	
 As mentioned by one speaker in the podcast, “creativity and business should work together”. Business has its artist side because  business is a key factor that will make the creativity sustainable. If there’s no way to make money, this won’t be a healthy model. In addition, I totally agree with the last speaker who works as both a writer and a publisher. He is very practical about his work. He said working at the publisher can support him as a writer. As long as the model works, it’s a great way to produce creative work. 
 
+## Week 2 homework (Jon Bernthal fanpage)
+[Jon Bernthal Fan Club](https://www.facebook.com/JonBernthalFanClub/?notif_id=1537212001974916&notif_t=scheduled_post_published&ref=notif)
+
 ## Week 1 reading response
 In the article “The man who made Justin Bieber”, I learned a lot secrets behind Justin Bieber’s fame, and how he became world-wide famous. Although I grew up in China, I can still remember his song “Baby” was so popular that almost everyone was singing and imitating him. 
 
@@ -16,3 +19,4 @@ After reading this article, I found that Braun was a great businessman who is go
 Braun is also good at cross-promotion. He used Bieber’s fame to benefit other clients and it worked quite well. For instance, “Last month, he tweeted to introduce the world to Braun’s newest client, Madison Beer, a thirteen-year-old singer who resembles a baby Megan Fox. Within minutes, her name was trending worldwide”. Such strategy made Braun’s success like a snowball, continuously promoting new clients. 
 
 While being a successful businessman, Braun was strict with his clients. For instance, when Bieber was late for a performance, Braun immediately called Bieber and yelled at him. Then he would point out his fault and “have somebody come to his house every workday”.
+

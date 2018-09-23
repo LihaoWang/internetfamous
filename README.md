@@ -2,7 +2,7 @@
 This is a blog made by Lihao Wang to document the reading responses and homework in Internet Famous class.
 
 ## Week 3 homework
--[Pinterest Page](https://www.pinterest.com/leowang9863/celebrity-persona/)
+- [Pinterest Page](https://www.pinterest.com/leowang9863/celebrity-persona/)
 
 ## Week 2 reading response
 Internet has made the barrier of creative career path even lower. Nowadays, everyone can post their content on platforms like YouTube, Twitter and Facebook to label themselves as content creators. I personally want to be a YouTuber several years ago. Although those great videos posted on YouTube seem to be easy and effortless, when I was making it myself, I could really felt the difficulty in it. As an individual creator, it’s hard to imagine the effort behind the work. So as an audience and consumer, I can totally understand the sponsored contents. 

@@ -1,6 +1,13 @@
 # Internet Famous Blog
 This is a blog made by Lihao Wang to document the reading responses and homework in Internet Famous class.
 
+## Week 3 reading response
+The author of the essay analyzed the fact that people are often judged by their appearance and ways they act. As a person born in “a classic black American migration family”, author experienced so much inequality in her life. “Life isn’t fair” is the sentence that is repeated again and again in the essay. And this is so true in such society. Personally speaking, I was taught to dress properly to fit the theme of the event since childhood. If I look “acceptable”, I would be treated better than those who look “presentable”. 
+
+As mentioned by the author, the reason why “poor people make stupid, illogical decisions to buy status” is want to “belong to a group”. Also, we are not able to feel how “poor people” feel unless we are the poor. The way they think and act is largely different than us. 
+
+However, I am curious about how this issue would relate to the fame on Internet. Because I think Internet is an open space where everyone could act as different personality. Even poor people can become famous by pretending they live a rich life while rich people could act like they are poor. 
+
 ## Week 3 homework
 - [Pinterest Page](https://www.pinterest.com/leowang9863/celebrity-persona/)
 

@@ -1,6 +1,13 @@
 # Internet Famous Blog
 This is a blog made by Lihao Wang to document the reading responses and homework in Internet Famous class.
 
+## Week 4 reading response
+The essay mainly examines the fact of fame-starved children at IMTA, a contest for children who want to become famous. At IMTA, there are a lot of agents looking for talents, “the next Ashton Kutcher or Elijah Wood”. The settings of IMTA is very much like American Idol and it is believed that “American Idol is really helping the talent-convention industry”.  Besides the agents, kids' mothers are there, trying to capture every moment of their kids. 
+
+I don't think it's a healthy phenomenon when kids are craving for fame. Usually, what they saw is one side of the fame. It's not easy to maintain the fame, even for kids. Although it's quite easy to be famous in such an Internet Era, kids might not be prepared for byproducts come with the fame. As a celebrity, kid is being consumed by the public as a entertainment product. Sometimes even a adult celebrity cannot stand the pressure, not to mention kids. As mentioned by the author, “Hollywood is overpopulated with adult actors”. It is the industry itself that contributes to the phenomenon of kid celebrities. 
+
+Overall, I don't feel like letting children become famous is a good idea, and it shouldn't be encouraged by parents. Some kid celebrities might seem glamorous, it is all about packaging. 
+
 ## Week 3 reading response
 The author of the essay analyzed the fact that people are often judged by their appearance and ways they act. As a person born in “a classic black American migration family”, author experienced so much inequality in her life. “Life isn’t fair” is the sentence that is repeated again and again in the essay. And this is so true in such society. Personally speaking, I was taught to dress properly to fit the theme of the event since childhood. If I look “acceptable”, I would be treated better than those who look “presentable”. 
 

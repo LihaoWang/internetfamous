@@ -1,6 +1,11 @@
 # Internet Famous Blog
 This is a blog made by Lihao Wang to document the reading responses and homework in Internet Famous class.
 
+## Week 5 reading response
+The reading examines the phenomenon of smart fan and backyard wrestling in American culture. Those people who are enthusiastic about wrestling becomes so called “smart fans”. And they started organizing their own events, imitating what they saw on television. This is really interesting that smart fans are actually forming another community in the fan community. In addition, smart fans and Marks are divided within the fan community. They have similar interests, but in different directions. 
+
+In such Internet era, becoming a “smart fan” is relatively easy because people can get access to any resources they want on the Internet. Also, I think every fan would see themself as a smart fan and at the same time form different groups in the community. From my personal experience, sometimes smart fans can be quite “dangerous” or “creepy”. They would act arrogantly in the group and try to rule the others, simply because they seem to know more about the celebrity. 
+
 ## Week 4 reading response
 The essay mainly examines the fact of fame-starved children at IMTA, a contest for children who want to become famous. At IMTA, there are a lot of agents looking for talents, “the next Ashton Kutcher or Elijah Wood”. The settings of IMTA is very much like American Idol and it is believed that “American Idol is really helping the talent-convention industry”.  Besides the agents, kids' mothers are there, trying to capture every moment of their kids. 
 

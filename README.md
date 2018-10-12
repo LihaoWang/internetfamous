@@ -6,6 +6,8 @@ The reading examines the phenomenon of smart fan and backyard wrestling in Ameri
 
 In such Internet era, becoming a “smart fan” is relatively easy because people can get access to any resources they want on the Internet. Also, I think every fan would see themself as a smart fan and at the same time form different groups in the community. From my personal experience, sometimes smart fans can be quite “dangerous” or “creepy”. They would act arrogantly in the group and try to rule the others, simply because they seem to know more about the celebrity. 
 
+One of the opinions mentioned in the podcast is that taking selfie is a way of finding selves. This idea stood out to me because I would often see selfie as a way to document the life, but haven’t thought of further meanings of it. Nowadays, selfie becomes an object on the Internet for people to critic and consume. Everyone is paying attention to one’s appearance. It’s true, but I don’t think it’s all bad. From the selfie, people viewing themselves from the perspective of others. In this way, they might find something that they don’t notice before. It can be a good way for people to continuously improve themselves.
+
 ## Week 4 reading response
 The essay mainly examines the fact of fame-starved children at IMTA, a contest for children who want to become famous. At IMTA, there are a lot of agents looking for talents, “the next Ashton Kutcher or Elijah Wood”. The settings of IMTA is very much like American Idol and it is believed that “American Idol is really helping the talent-convention industry”.  Besides the agents, kids' mothers are there, trying to capture every moment of their kids. 
 

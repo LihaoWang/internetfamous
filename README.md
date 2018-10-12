@@ -13,6 +13,8 @@ I don't think it's a healthy phenomenon when kids are craving for fame. Usually,
 
 Overall, I don't feel like letting children become famous is a good idea, and it shouldn't be encouraged by parents. Some kid celebrities might seem glamorous, it is all about packaging. 
 
+It is common to see the phenomenon of hillbilly in any culture, not limited in America. As mentioned in the reading, hillbilly is largely socially constructed. And it gives middle-class people chance to feel superior and “presume racism”. But what surprised me is that it becomes mainstream and even shown on TV shows. I don’t think it’s a good idea to consume hillbilly in that way because it would be misleading to the public and increase the inequality between classes. 
+
 ## Week 3 reading response
 The author of the essay analyzed the fact that people are often judged by their appearance and ways they act. As a person born in “a classic black American migration family”, author experienced so much inequality in her life. “Life isn’t fair” is the sentence that is repeated again and again in the essay. And this is so true in such society. Personally speaking, I was taught to dress properly to fit the theme of the event since childhood. If I look “acceptable”, I would be treated better than those who look “presentable”. 
 

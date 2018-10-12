@@ -34,6 +34,8 @@ From the podcast, I learned that followers doesn’t necessarily mean profit. Pe
 	
 As mentioned by one speaker in the podcast, “creativity and business should work together”. Business has its artist side because  business is a key factor that will make the creativity sustainable. If there’s no way to make money, this won’t be a healthy model. In addition, I totally agree with the last speaker who works as both a writer and a publisher. He is very practical about his work. He said working at the publisher can support him as a writer. As long as the model works, it’s a great way to produce creative work. 
 
+The reading “Celebrity culture and the American dream” talks about the history of film industry and how does American Dream became popular. It’s easy to understand that when people wasn’t able to sustain themselves, it was not possible for movies to become mainstream. The emergence of American Dream is closely related to the upward mobility due to the prosperity of the film industry. In addition, I think it confirms the Maslow's hierarchy of needs in a way. 
+
 ## Week 2 homework (Jon Bernthal fanpage)
 - [Jon Bernthal Fan Club](https://www.facebook.com/JonBernthalFanClub/?notif_id=1537212001974916&notif_t=scheduled_post_published&ref=notif)
 - [Jon Bernthal video cut](https://www.youtube.com/watch?v=Dkwww_POkE4&feature=youtu.be)

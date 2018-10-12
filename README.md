@@ -49,5 +49,7 @@ Braun is also good at cross-promotion. He used Bieber’s fame to benefit other 
 
 While being a successful businessman, Braun was strict with his clients. For instance, when Bieber was late for a performance, Braun immediately called Bieber and yelled at him. Then he would point out his fault and “have somebody come to his house every workday”.
 
+In the reading”Listening and longing”, the story of Dodge’s bid impressed me a lot. I think it might be one of the early examples of self advertising. During the auction, Dodge continuously increased the bid to gain attention from other bidders. Fame and attention was not a bad thing for himself as a writer of comic songs and sketches. Finally, his dramatic auction and the high bid became a news distributed in public. And this the result he would like to see. On one hand, he won the auction. On the other hand, he gained fame. It was not a bad deal for him.
+
 ## Week 1 homework
 ![](hw1.jpeg)

@@ -1,6 +1,11 @@
 # Internet Famous Blog
 This is a blog made by Lihao Wang to document the reading responses and homework in Internet Famous class.
 
+## Week 6 reading response
+The reading Celebrity gives me a lot of new understanding of the reality show. Nowadays, reality TV is really popular and common. But what I didn’t know before reading the excerpt is that it has a long history back in 1948. I think the reason why reality TV remains popular is: it is closer to viewers’ life.  I gives a feeling of intimacy between the viewers and the “celebrity”. Viewers can easily relate to themselves, and even imagine themselves on the show. This is a big advantage that traditional TV show doesn’t have.  In addition, thanks to the technology advancement of non-linear editing system, the production becomes much easier. 
+
+Personally speaking, I watch reality TV a lot. And I found the competition ones the most interesting because it is dramatic. However, reality TV is often scripted, at least in China. This would annoy the views in some cases. But I feel like it is acceptable because it is ultimately a TV show, and it has to be more dramatic than the reality. 
+
 ## Week 5 reading response
 The reading examines the phenomenon of smart fan and backyard wrestling in American culture. Those people who are enthusiastic about wrestling becomes so called “smart fans”. And they started organizing their own events, imitating what they saw on television. This is really interesting that smart fans are actually forming another community in the fan community. In addition, smart fans and Marks are divided within the fan community. They have similar interests, but in different directions. 
 

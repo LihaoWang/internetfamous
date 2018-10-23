@@ -1,6 +1,11 @@
 # Internet Famous Blog
 This is a blog made by Lihao Wang to document the reading responses and homework in Internet Famous class.
 
+## Week 7 reading response
+This weeks reading examines the phenomenon and the creation of Slender Man on the Internet. As a person who has used the Internet for many years, I’m really familiar with the process of creating something viral. The creation of the Slender Man example is a traditional way of people collectively creating things online. I think the reason why so many people join the discussion is there are endless possibilities behind the character. People are able to use to imagine whatever they want. There’s no correct answer. I see it as a way of releasing imagination and a gateway from the reality. People enjoy the process of content creating. 
+
+From the reading, I also learned the concept of Alternate reality games, which basically describes the phenomenon of collective content creation online. Everyone is familiar with the digital meme culture, and we are all involved in it. The reason why we love memes is that we can resonate with them. So it’s a social action that gathers similar people. In this way, more memes will be created and spread all over the community. 
+
 ## Week 6 reading response
 The reading Celebrity gives me a lot of new understanding of the reality show. Nowadays, reality TV is really popular and common. But what I didn’t know before reading the excerpt is that it has a long history back in 1948. I think the reason why reality TV remains popular is: it is closer to viewers’ life.  I gives a feeling of intimacy between the viewers and the “celebrity”. Viewers can easily relate to themselves, and even imagine themselves on the show. This is a big advantage that traditional TV show doesn’t have.  In addition, thanks to the technology advancement of non-linear editing system, the production becomes much easier. 
 

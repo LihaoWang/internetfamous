@@ -2,6 +2,8 @@
 This is a blog made by Lihao Wang to document the reading responses and homework in Internet Famous class.
 
 ## Week 7 homework
+![](t3.png)
+![](t4.png)
 ![](t1.png)
 ![](t2.png)
 

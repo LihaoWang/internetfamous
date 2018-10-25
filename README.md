@@ -1,6 +1,10 @@
 # Internet Famous Blog
 This is a blog made by Lihao Wang to document the reading responses and homework in Internet Famous class.
 
+## Week 7 homework
+![](t1.png)
+![](t2.png)
+
 ## Week 7 reading response
 This weeks reading examines the phenomenon and the creation of Slender Man on the Internet. As a person who has used the Internet for many years, I’m really familiar with the process of creating something viral. The creation of the Slender Man example is a traditional way of people collectively creating things online. I think the reason why so many people join the discussion is there are endless possibilities behind the character. People are able to use to imagine whatever they want. There’s no correct answer. I see it as a way of releasing imagination and a gateway from the reality. People enjoy the process of content creating. 
 

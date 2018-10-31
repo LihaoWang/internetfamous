@@ -1,6 +1,13 @@
 # Internet Famous Blog
 This is a blog made by Lihao Wang to document the reading responses and homework in Internet Famous class.
 
+## Week 8 reading response
+This article examines the logic behind the virality and analyzes the emotion triggered by the viral content. It turns out that arousal and dominance are the most likely to become viral. And there are different combinations of arousal and dominance. It’s interesting that most viral content include some kind of surprise. I think this is because the feeling of surprise will be more likely for a person to share with others. As a result, the content will become viral.  
+
+Admiration is a key factor of virality. If a person saw a picture of someone he or she admires, most likely he or she would repost the picture. I think the logic behind that is people want to become someone they admire. Take the Oscar Selfie as an example, when seeing so many famous people,, viewer will have a feeling of admiration and happiness. That’s why it was such a successful campaign by Samsung. 
+
+From the reading, I learned how content becomes viral and ways to create them. I think it will be interesting to try create something on my own to verify the theory.
+
 ## Week 7 homework
 ![](t3.png)
 ![](t4.png)

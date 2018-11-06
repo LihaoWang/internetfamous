@@ -1,6 +1,11 @@
 # Internet Famous Blog
 This is a blog made by Lihao Wang to document the reading responses and homework in Internet Famous class.
 
+## Week 9 reading response
+After watching the TED talk, I was surprised by, or even shocked by Amanda Palmer’s work and the fandom activity related to her. Personally speaking, I have the fear of asking. I fear to be rejected, not being confident about myself. However, Amanda Palmer pushed the art of asking to another new level. When she mentions her handing out flowers on the street, I would see it as a kind of performance art. This was acceptable to me because it encouraged people to interact with others more. 
+
+Internet has made it much easier to ask for anything than before. So Palmer often lived in fans’ house and treated by her fans. In return, Palmer would have conversations with her fans. She thought it is equal between her and fans: she produces music, fans support her. Although it is real fanlike activity, it is so extreme that I don’t think it. can be accepted by all fans. It might also due to the personality of her fans. Palmer’s music will attract fans who have the same belief. This makes it possible for Palmer to do some untypical activities like sleeping at fan houses, asked for items and letting fans drawing on her. So I think such activities can only be done by a celebrities and fans who share the same character. 
+
 ## Week 8 reading response
 This article examines the logic behind the virality and analyzes the emotion triggered by the viral content. It turns out that arousal and dominance are the most likely to become viral. And there are different combinations of arousal and dominance. It’s interesting that most viral content include some kind of surprise. I think this is because the feeling of surprise will be more likely for a person to share with others. As a result, the content will become viral.  
 

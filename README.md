@@ -1,6 +1,11 @@
 # Internet Famous Blog
 This is a blog made by Lihao Wang to document the reading responses and homework in Internet Famous class.
 
+## Week 10 reading response
+The podcast and the article discuss the famous hip-hop dj Peter Rosenberg. How he developed interest in hip-pop, and his opinion on hip-hop. Rosenberg is the host of two radios and is famous for his realness. He defends the old-school rap and supports the purity of rap. Because of this, when “starships”, a song by Nicki Minaj became a hit in music industry. Rosenberg felt being humiliated because Nicki claims herself as “an underground rapper from Queens“. However, the song “starship” has nothing to do with rap in Rosenberg’s opinion. This became the reason why Rosenberg publicly said that Minaj’s song wasn’t real hiphop. And the fans was divided into two parts. Some people supported Rosenberg’s realness and pure rap, while others claimed that the definition of rap could be broader. So the boundary between rap and pop was really vague.
+
+Such controversy is quite often now. Some try to protect the purity while some try to be more inclusive and innovative. It’s hard to say which side is right. But I do think every field is constantly developing. So it is unwise to hold tightly to one side. We should be open to experiment with new things, and it will be a healthy model.
+
 ## Week 9 reading response
 After watching the TED talk, I was surprised by, or even shocked by Amanda Palmer’s work and the fandom activity related to her. Personally speaking, I have the fear of asking. I fear to be rejected, not being confident about myself. However, Amanda Palmer pushed the art of asking to another new level. When she mentions her handing out flowers on the street, I would see it as a kind of performance art. This was acceptable to me because it encouraged people to interact with others more. 
 

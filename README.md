@@ -1,6 +1,11 @@
 # Internet Famous Blog
 This is a blog made by Lihao Wang to document the reading responses and homework in Internet Famous class.
 
+## Meme
+![](m1.JPG)
+![](m3.JPG)
+![](m2.JPG)
+
 ## Week 10 reading response
 The podcast and the article discuss the famous hip-hop dj Peter Rosenberg. How he developed interest in hip-pop, and his opinion on hip-hop. Rosenberg is the host of two radios and is famous for his realness. He defends the old-school rap and supports the purity of rap. Because of this, when “starships”, a song by Nicki Minaj became a hit in music industry. Rosenberg felt being humiliated because Nicki claims herself as “an underground rapper from Queens“. However, the song “starship” has nothing to do with rap in Rosenberg’s opinion. This became the reason why Rosenberg publicly said that Minaj’s song wasn’t real hiphop. And the fans was divided into two parts. Some people supported Rosenberg’s realness and pure rap, while others claimed that the definition of rap could be broader. So the boundary between rap and pop was really vague.
 

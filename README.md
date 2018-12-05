@@ -1,6 +1,11 @@
 # Internet Famous Blog
 This is a blog made by Lihao Wang to document the reading responses and homework in Internet Famous class.
 
+## Week 14 reading response
+Nowadays, more and more people get access to the Internet and social media platforms. Also, because people often post things on Internet, there is no way to conceal themselves on Internet anymore. Big Internet companies can identify you by your IP address, your searching history and the device you use, etc. Besides, other users can know your personal information by the method of “human flesh search”. This is a concept really popular around Chinese Internet. It means searching for one’s personal information all around the Internet and expose everything. Some people are using Internet as a weapon to promote their “justice”. But actually it is Internet abuse. 
+
+Because everyone can easily access the Internet, argument can easily be sparkled. Different group of people will fight with each other and comment bad things. Soon it will go from online to offline. Because it’s largely anonymous on the Internet, people tend to reflect their disappointment online. But it is not the way Internet should be used. Internet is supposed to be a tool to make our lives easier. I really wish everyone can say and act properly online, and create a good Internet virtual space.
+
 ## Meme
 ![](m1.JPG)
 ![](m3.JPG)

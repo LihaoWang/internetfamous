@@ -10,7 +10,9 @@ Because everyone can easily access the Internet, argument can easily be sparkled
 She walked by my side. I know her smell. Even when I close my eyes, I can recognize her. Oh, she is looking at me. Does she know who am I? Maybe she read the comment I posted on Instagram yesterday. She smiled at me! My world is melting in her smile. She’s so beautiful. My life is completed by her smile. I will never forget this day, the day she smiled at me.
 
 ## Week 12 reading response
+I personally have been a big fan of a Chinese idol group. So I know a little bit about fan fic and how it works within the community. The reading provides more details about the concept of “shipping”. And this is the first time I know there is an academic term for such phenomenon. I do agree that shipping some celebrities will give people a feeling of control. And it’s acceptable to keep the shipping in a moderate way. I’ve seen some extreme shipping fans that affect celebrities normal life. That’s not a good example of shipping fans and I don’t think such fan is good for the whole community. 
 
+The article about conspiracy is also really inspiring. Nowadays conspiracy theories are all over the places and gains a lot of attention. People like seeing those content and will become more curious about the celebrities even though they don’t know them before. So I think this is also the reason why there are so many conspiracy theories now. Because this is another way of becoming a celebrity. 
 
 ## Meme
 ![](m1.JPG)

@@ -6,6 +6,12 @@ Nowadays, more and more people get access to the Internet and social media platf
 
 Because everyone can easily access the Internet, argument can easily be sparkled. Different group of people will fight with each other and comment bad things. Soon it will go from online to offline. Because it’s largely anonymous on the Internet, people tend to reflect their disappointment online. But it is not the way Internet should be used. Internet is supposed to be a tool to make our lives easier. I really wish everyone can say and act properly online, and create a good Internet virtual space.
 
+## Fan fic
+She walked by my side. I know her smell. Even when I close my eyes, I can recognize her. Oh, she is looking at me. Does she know who am I? Maybe she read the comment I posted on Instagram yesterday. She smiled at me! My world is melting in her smile. She’s so beautiful. My life is completed by her smile. I will never forget this day, the day she smiled at me.
+
+## Week 12 reading response
+
+
 ## Meme
 ![](m1.JPG)
 ![](m3.JPG)
